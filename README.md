@@ -26,8 +26,8 @@
 2. 【熟悉水性】双手抱膝盖、憋气、背部漂浮在水面。[Link, 1:55](https://youtu.be/0apIaGTmZbo?t=115)
 3. 蹬墙壁出发，漂浮 [Link, 1:09](https://youtu.be/bNIvrNlVJ_Y?t=69)
 4. 原地呼吸，[Link, 1:24-1:30](https://youtu.be/LJTfJ46o45w?t=84)
-5. 蛙泳腿，带浮板练到对岸
-6. 蛙泳手，腿不动，游泳池一半
+5. 蛙泳腿，带浮板练到对岸 [Link](https://www.youtube.com/watch?v=fEZeMjMgo6E)
+6. 蛙泳手，腿不动，游泳池一半 [Link](https://www.youtube.com/watch?v=U1D1YVnF00Q)
 7. 全部配合起来
 8. 踩水
 
